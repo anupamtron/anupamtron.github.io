@@ -1,4 +1,4 @@
-# Why I Built Prime Health 💚
+# Why I Built Prime Health 💚 A calorie tracker built from real experience—not just theory.
 
 Hi, I'm **Anupam Saxena**, the creator of Prime Health.
 
@@ -60,7 +60,7 @@ Instead of starving myself or giving up my favourite foods, I created a few simp
 
 ---
 
-## The Result
+## The Transformation
 
 📅 **23 January 2026:** **79.10 kg**
 
