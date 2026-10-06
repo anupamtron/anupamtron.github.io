@@ -64,9 +64,10 @@ Instead of starving myself or giving up my favourite foods, I created a few simp
 
 📅 **23 January 2026:** **79.10 kg**
 
-📅 **July 2026:** **Around 69 kg**
+📅 **5 October 2026:** **67.60 kg**
 
-Nearly **10 kilograms lost** without extreme diets or impossible workouts.
+
+Nearly **11+ kilograms lost** without extreme diets or impossible workouts.
 
 ---
 
